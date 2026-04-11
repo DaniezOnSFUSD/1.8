@@ -1,3 +1,3 @@
 I need a Break From Updating these things.
 
-# The Website is Currently Blocked by Securly, I cannot do anything about it because I dont have another email to make another github account. Thanks for playing while you could. -DaniezonMC
+# The website is BACK!!!!! This is all thanks to to a tip by a person on my gmail! Thanks for sending in your feedback, if you want a shoutout please message me again!
